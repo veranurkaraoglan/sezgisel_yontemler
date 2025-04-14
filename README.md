@@ -1,0 +1,1 @@
+# sezgisel_yontemler
